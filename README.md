@@ -38,4 +38,5 @@ The Alight Motion Mod APK offers a variety of premium features that make video e
 
 For more information and to download the latest version of the Alight Motion Mod APK, visit <a href="https://alightmotionmodapks.in/">Alight Motion Mod APK</a>.
 
-Disclaimer: Using modded APKs can violate the terms of service of the original app. Always download apps from trusted sources and be aware of potential risks such as malware or data privacy issues.
+### Disclaimer:
+Using modded APKs can violate the terms of service of the original app. Always download apps from trusted sources and be aware of potential risks such as malware or data privacy issues.
